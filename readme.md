@@ -1,0 +1,1 @@
+Anyone foolish enough to contend with MY git activity log better be ready to navigate my DEATH MAZE!
